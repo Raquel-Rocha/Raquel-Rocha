@@ -1,4 +1,4 @@
-Hello I'am  Raquel Rocha, programmer developer beginner.
+Hello I'am  Raquel Rocha, an beginner programmer, enstusiata of technology.
 
 ✦   Ask me about HTML and CSS
 
